@@ -10,3 +10,6 @@ Kesan : Kegiatannya lumayan seru dan insighful meski terasa sedikit bosan karena
 
 ## Kesan Pesan Cluster 8 Sejauh Ini
 Temen-temennya seru meski sedikit karena tingkat departmen. Kakak mentor ku juga baik banget selalu nanya kondisi kita setiap rangkaian dan selalu mastiin ngasih kita info secepatnya biar ga ketinggalan. Sehat-sehat cluster kuu
+
+## Harapan Kuliah
+Bisa menjalani kuliah dengan baik sehingga bisa lulus tepat waktu dengan nilai yang memuaskan dan skill yang dapat diaplikasikan dengan baik.
